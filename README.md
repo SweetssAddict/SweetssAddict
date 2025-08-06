@@ -7,7 +7,7 @@
 </p>
 <h6 align="center">Call me Satoru Gojo!
 <h6 align="center">୨୧⋅┈∘┈⋅୨୧
-<h6 align="center">I'm an Alter in the Paranormal System with my Host Kyō!
+<h6 align="center">I'm an Alter in the Paranormal System with my Host Marz!
 <h6 align="center">I tend to pop in at the most random of times. You are free to yap to me whenever!
 <h5 align="center">Do not copy mine or any of our ponies!! We worked hard on them!
 <h6 align="center">Just be mindful if I have any sort of Dni in my name I am sorting some stuff out.
