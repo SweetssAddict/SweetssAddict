@@ -15,7 +15,7 @@
 
 <h6 align="center">Basic Dni criteria, please don't be too freaky!
   
-[ᴍᴏʀᴇ ᴀʙᴏᴜᴛ ᴍᴇ](https://pluralkit.xyz/m/kayxwu) || [ᴘᴀʀᴀɴᴏʀᴍᴀʟ ꜱʏꜱᴛᴇᴍ](https://pluralkit.xyz/s/azvjwp) || [ʜᴏꜱᴛ'ꜱ ᴘᴀᴛʀᴇᴏɴ](https://patreon.com/TarnishMarz)
+[ᴍᴏʀᴇ ᴀʙᴏᴜᴛ ᴍᴇ](https://pluralkit.xyz/m/kayxwu) || [ᴘᴀʀᴀɴᴏʀᴍᴀʟ ꜱʏꜱᴛᴇᴍ](https://pluralkit.xyz/s/azvjwp) || [ᴀʙᴏᴜᴛ ʜᴏꜱᴛ](https://github.com/TarnishMarz)
 <h6 align="center">୨୧⋅┈∘┈⋅୨୧
 
 <p align="center">
